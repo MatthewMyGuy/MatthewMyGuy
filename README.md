@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MatthewMyGuy
+- 👀 I’m interested in programming.
+- 🌱 I’m currently learning programming
+- 📫 How to reach me: Discord, !MatthewMyGuy#0001
+- 🐢 I like cats, turtles and dogs.
+- ⛹🏻‍♂️ I also like Basketball.
